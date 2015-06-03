@@ -1,9 +1,9 @@
-Hack Your Learning –The Art of Retention
+					Hack Your Learning –The Art of Retention
 
-						Preface
+							Preface
 If there are species to talk about who exploit nature much more than others, then that would be humans. We are an continuous evolving species, and our brain is fed with lots of information day in day out. We remember things and we also forget things. Fortunately our brain is a amazing piece of creation, that lets only the prominent things to stay fresh as a memory in our brain. The brain is constantly trying to filter information coming from every sphere of our day today interactions.
 	Let me ask you a question. There is this incident that has occured to almost everyone at some point in their life that we sometimes tend to remember things vividly, from our very early childhood moment, but we cannot remember some of the recent events of past two days. Why is it that ? Wouldn’t that be good if we can remember everything, that happened to us ?  That curiosity is good, and in a good way it tries to lead us to whole new level of curiosity, that how does our brain work. How we can remember things better ?
 	Learning how our brains work and asking questions at every step of the learning process, will help us become familiar with how our brain really works. We aren’t conditioned in ourselves to think about the meta process of learning. We usually don’t think or fret about at the first place about how learning happens, and write from childhood we are just taught of the rote learning methods because for children, that’s the only way teachers know. The result however In most cases is that the child finds the stuff boring and eventually he forgets. The flaw isn’t that the child is dumb, but infact the dumbness of the method by which learning is fed to the child. I would like to stress on the fact that appreciating how we learn is a really rewarding process, an infact it should often be the first task we must undertake and this should also be included in curriculum, right from childhood. In this small book I intend to give some great insights which I have gathered from my  own experience in my learning journey, on how to make learning an interesting endevour, and to make that really stick and make sense, and which is long lasting. Hack Your Learning, will literally give you the power to become a better learner, in a short amount of time, with fast paced exercises.
 
-What this book contains :
-1)	Chapter  1 – Preparing the Mindset  
+	What this book contains :
+		1) Chapter  1 – Preparing the Mindset  
